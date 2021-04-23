@@ -4,7 +4,7 @@ Double cheese Margherita Pizza-ingrediants
 1/4 cup Sooji (Semolina/ Rava),
 2-1/2 teaspoons Active dry yeast , dried,
 Salt , as required,
-2 teaspoons Honey , or sugar,
+2 teaspoon or sugar,
 Lukewarm Water , as required,
 2 tablespoons Extra Virgin Olive Oil,
 3 tablespoons Sooji (Semolina/ Rava) , for dusting and rolling
